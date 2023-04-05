@@ -1,7 +1,6 @@
 - 👋 ola meu nome e @daianefronza22102006
 - 👀  em estudar a area da estetica 
 - 🌱  sou formada em maquiagem proficional 
-- 💞️ eu conheço meu namorado a mais de 1 ano 
 - 📫 uma das coisa que eu mais amo frazer e conhecer e conhecer outras cidades lugares turistico
 
 <!---
